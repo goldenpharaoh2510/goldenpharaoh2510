@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @goldenpharaoh2510
+- 👋 Hi, I’m  PHARAOH GAMING
 - 👀 I’m interested in PLAYING PUBG
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on WEBSITE DESIGNING
