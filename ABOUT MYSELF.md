@@ -2,7 +2,7 @@
 - 👀 I’m interested in PLAYING PUBG
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on WEBSITE DESIGNING
-- 📫 to reach me                      ENAIL ID:PHARAOH2510@GMAIL.COM
+- 📫 to reach me                      EMAIL ID:PHARAOH2510@GMAIL.COM
 -  GENDER:MALE
 <!---
 goldenpharaoh2510/goldenpharaoh2510 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
